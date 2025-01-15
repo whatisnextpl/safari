@@ -35,18 +35,18 @@ https://lnk.mugo/safari
 
 
 ```sh
- ice
- dunno how to name this one
- break me down (this one is for u)
- destroyin' us (no more)
- fold.wav
- secret enemy (bout me)
- supernova (rscky. remix)
- crow (im free)
- sleepin²
- touch
- its too late
- second place (outro)
+1. ice
+2. dunno how to name this one
+3. break me down (this one is for u)
+4. destroyin' us (no more)
+5. fold.wav
+6. secret enemy (bout me)
+7. supernova (rscky. remix)
+8. crow (im free)
+9. sleepin²
+10. touch
+11. its too late
+12. second place (outro)
 ```
 
 ![desc](https://github.com/user-attachments/assets/2e1a57ad-1c57-4546-8ab1-10b3cc5c998d)
