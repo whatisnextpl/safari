@@ -52,7 +52,7 @@ https://lnk.mugo/safari
 ![desc](https://github.com/user-attachments/assets/2e1a57ad-1c57-4546-8ab1-10b3cc5c998d)
 
 
-##### Thanks for all of the support! rscky.
+##### If you want - download all of the tracks and use them for anything you want, even for profit! You can categorize this one as a "open source music". Thanks for all of the support! rscky.
 
 [//]: # (These are reference links used in the body of this note and get stripped out when the markdown processor does its job. There is no need to format nicely because it shouldn't be seen. Thanks SO - http://stackoverflow.com/questions/4823468/store-comments-in-markdown-syntax)
 
