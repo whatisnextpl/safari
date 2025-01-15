@@ -18,7 +18,9 @@ tunisia, and at the same time i was working on "deep" project, so following up t
 i definetely loveee ittt!! from this point i want to give sooo much thanks to my friends that helped me with this all starting with flajuss. i really dont know how i can describe him, the best way is i think to just check out his music and then make ur own opinion. tbh i love this guy and love the way that we are working together on our projects 
 (e.g. b4ckend). with that i decided to release my remix of his song "supernova" on this album. tysm broski!!! 
 additionaly want to thank my brother ghaith from tunisia, whose voice can be heard in "sleepin2", my broski "ulixsz" and my lovely gf for all the support that you gave me in this few months and my bro "orzechuu" for your interest and collaborating in this project. unfortunately our collab didnt happen as with several other artists. this project really means a lot to me and i gave it my all to make this shitt outt, so please if you are reading this rn, open your ig and share this album with your friends. idk show it to your mom, dad, brother, sister - or just to anyone. i hope you will like all this stuff. in some track i even used my voice, soo check it out haha! product made and 
-supported by my label - what-is-next.pl™. ℗2025 rscky (exlusive license to what-is-next.pl™)																
+supported by my label - what-is-next.pl™.
+>
+> ℗2025 rscky (exlusive license to what-is-next.pl™)																
 
 written by Antoni "rscky." Żabicki.
 
