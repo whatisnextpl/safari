@@ -1,4 +1,8 @@
 # rscky. - safari
+
+![safari-coverart](https://github.com/user-attachments/assets/2b497725-c3d9-47ed-aabf-b958f49a0b25)
+
+
 ##### _By what-is-next.pl_
 
 
