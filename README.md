@@ -25,6 +25,24 @@ written by Antoni "rscky." Żabicki.
 https://lnk.mugo/safari
 ```
 
+## tracklist
+
+
+```sh
+ ice
+ dunno how to name this one
+ break me down (this one is for u)
+ destroyin' us (no more)
+ fold.wav
+ secret enemy (bout me)
+ supernova (rscky. remix)
+ crow (im free)
+ sleepin²
+ touch
+ its too late
+ second place (outro)
+```
+
 ##### Thanks for support, rscky!
 
 [//]: # (These are reference links used in the body of this note and get stripped out when the markdown processor does its job. There is no need to format nicely because it shouldn't be seen. Thanks SO - http://stackoverflow.com/questions/4823468/store-comments-in-markdown-syntax)
