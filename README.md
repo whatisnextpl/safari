@@ -47,6 +47,8 @@ https://lnk.mugo/safari
  second place (outro)
 ```
 
+![desc](https://github.com/user-attachments/assets/95b0191a-8395-4d3f-9112-36cd5fb73a8e)
+
 ##### Thanks for support, rscky!
 
 [//]: # (These are reference links used in the body of this note and get stripped out when the markdown processor does its job. There is no need to format nicely because it shouldn't be seen. Thanks SO - http://stackoverflow.com/questions/4823468/store-comments-in-markdown-syntax)
