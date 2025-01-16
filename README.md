@@ -28,7 +28,7 @@ written by Antoni "rscky." Żabicki.
 
 
 ```sh
-https://lnk.mugo/safari
+https://mugo.lnk.to/safarirscky
 ```
 
 ## tracklist
@@ -48,6 +48,9 @@ https://lnk.mugo/safari
 11. its too late
 12. second place (outro)
 ```
+
+## rscky. - secret enemy (official video) (safari)
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/AkqxRi2XhTI/0.jpg)](https://www.youtube.com/watch?v=AkqxRi2XhTI)
 
 ![desc](https://github.com/user-attachments/assets/2e1a57ad-1c57-4546-8ab1-10b3cc5c998d)
 
