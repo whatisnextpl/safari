@@ -28,7 +28,7 @@ written by Antoni "rscky." Żabicki.
 
 
 ```sh
-https://mugo.lnk.to/safarirscky
+https://mugo.lnk.to/rsckysafari
 ```
 
 ## tracklist
